@@ -9,3 +9,5 @@ Utilizo esse espaço paraminha organização e compartilhamento dos meus projeto
 ### para entrar em contato comigo🤝
 
 kawa.castro@escola.pr.gov.br
+
+![](https://media1.tenor.com/m/qHPU5t7EXL8AAAAC/discord-vc.gif)
